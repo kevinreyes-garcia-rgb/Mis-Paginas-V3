@@ -4,7 +4,7 @@ Holasa a qui reunire mis proyectos para que les sea mas facil entrar a ellos
 ---
 
 ## Portada del Proyecto
-![Mis-Paginas Cover](https://files.catbox.moe/blmgnb.jpeg)
+![Mis-Paginas Cover](https://files.catbox.moe/m1jymy.jpeg)
 
 ---
 
